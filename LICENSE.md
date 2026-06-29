@@ -1,4 +1,4 @@
-# 
+# Secure Camtasia plugins for Mac OS | Advanced Camtasia plugins for PC Windows. Featuring slow-motion and multi-cam-editing — optimized for maximum performance on every platform.
 
 
 
